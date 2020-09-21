@@ -1,2 +1,0 @@
-# bouman-stuhl
-dutch design
